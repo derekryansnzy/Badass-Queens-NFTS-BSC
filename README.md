@@ -1,1 +1,1 @@
-# badassqueensnftsbsc
+Badass Queens NFTs on BSC
